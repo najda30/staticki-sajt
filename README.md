@@ -1,0 +1,1 @@
+# staticki-sajt
